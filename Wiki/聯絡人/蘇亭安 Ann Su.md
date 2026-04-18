@@ -1,0 +1,31 @@
+﻿---
+origin: AI-generated
+last_updated: 2026-04-18
+---
+# 👤 蘇亭安 Ann Su
+
+## 📌 職涯歷程
+- [[台灣東南亞區事業群]] (名片日期: 20251203)
+
+## 📝 原始名片資訊
+### 原始名片紀錄 (20251203)
+## 蘇亭安 Ann Su_台灣東南亞區事業群_20251203
+
+> **基本資料**
+- **職稱**: 系統規劃師 Sales Specialist
+- **手機**: 0930128238
+- **電話**: 886-3-5342030 ext.3665
+- **Email**: ann.su@digiwin.biz
+- **地址**: 30042新竹市東區東大路一段118號12樓 12F., No.118, Sec. 1, Dongda Rd., East Dist, Hsinchu City 30042, Taiwan
+- **統編**: 
+- **原始備註**: 
+
+---
+### 📝 關係聯繫紀錄
+
+- [20251203] 建立檔案
+- [查看原始名片圖檔](https://drive.google.com/file/d/1Z2cyDlMgghP5PFs27MlRkGJQqU3-gPHp/view?usp=drivesdk)
+
+
+
+

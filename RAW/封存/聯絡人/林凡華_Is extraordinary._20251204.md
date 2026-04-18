@@ -1,0 +1,16 @@
+## 林凡華_Is extraordinary._20251204
+
+> **基本資料**
+- **職稱**: 
+- **手機**: 09750-07159
+- **電話**: 03-5121552
+- **Email**: jill5121552@hotmail.com
+- **地址**: 新竹縣竹北市高鐵八路278號
+- **統編**: 
+- **原始備註**: 
+
+---
+### 📝 關係聯繫紀錄
+
+- [20251204] 建立檔案
+- [查看原始名片圖檔](https://drive.google.com/file/d/1vAeIu3xYXQClgwNaTZ24RLAmC-yHuvPW/view?usp=drivesdk)

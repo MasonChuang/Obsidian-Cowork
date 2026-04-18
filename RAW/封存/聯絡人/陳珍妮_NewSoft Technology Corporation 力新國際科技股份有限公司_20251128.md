@@ -1,0 +1,19 @@
+## 陳珍妮_NewSoft Technology Corporation
+力新國際科技股份有限公司_20251128
+
+> **基本資料**
+- **職稱**: 資深行銷專員
+Senior Marketing Specialist
+- **手機**: 
+- **電話**: 02-7721-0111
+- **Email**: jenny_chen@newsoft.com.tw
+- **地址**: 11494台北市內湖區新湖一路
+128巷15號6樓
+- **統編**: 22645531
+- **原始備註**: 
+
+---
+### 📝 關係聯繫紀錄
+
+- [20251128] 建立檔案
+- [查看原始名片圖檔](https://drive.google.com/file/d/1lGriDRHZHTMviFAq_L_e0QOIuWWMCUOL/view?usp=drivesdk)

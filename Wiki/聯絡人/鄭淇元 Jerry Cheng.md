@@ -1,0 +1,33 @@
+﻿---
+origin: AI-generated
+last_updated: 2026-04-18
+---
+# 👤 鄭淇元 Jerry Cheng
+
+## 📌 職涯歷程
+- [[敦陽科技 Stark Technology Inc.]] (名片日期: 20251208)
+
+## 📝 原始名片資訊
+### 原始名片紀錄 (20251208)
+## Jerry Cheng 鄭淇元_敦陽科技股份有限公司 Stark Technology Inc._20251208
+
+> **基本資料**
+- **職稱**: 業務專員 Sales Rep.
+- **手機**: 0936-513-957
+- **電話**: 886-3-542-5566 Ext: 3532
+- **Email**: Jerry.Cheng@sti.com.tw
+- **地址**: 30054 新竹市東大路二段83號 12F-1
+- **統編**: 84218848
+- **原始備註**: 
+
+**公司**：[[敦陽科技]]
+
+---
+### 📝 關係聯繫紀錄
+
+- [20251208] 建立檔案
+- [查看原始名片圖檔](https://drive.google.com/file/d/1Wlg53NQWVWpoWvrHXc7AzyjS1adRTdc0/view?usp=drivesdk)
+
+
+
+

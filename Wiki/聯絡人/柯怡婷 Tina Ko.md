@@ -1,0 +1,35 @@
+﻿---
+origin: AI-generated
+last_updated: 2026-04-18
+---
+# 👤 柯怡婷 Tina Ko
+
+## 📌 職涯歷程
+- [[鼎新電腦]] (名片日期: 20251126)
+
+## 📝 原始名片資訊
+### 原始名片紀錄 (20251126)
+## 柯怡婷 Tina Ko_鼎新電腦_20251126
+
+> **基本資料**
+- **職稱**: S3 高級規劃師 Advisory Planner
+- **手機**: 886-900003267
+- **電話**: 886-2-89111688
+- **Email**: tina20161944@digiwin.com
+- **地址**: 23146新北市新店區中興路一段222號
+No. 222, Sec. 1, Zhongxing Rd., Xindian Dist.,
+New Taipei City 23146, Taiwan
+- **統編**: 
+- **原始備註**: 
+
+**公司**：[[鼎新數智]]
+
+---
+### 📝 關係聯繫紀錄
+
+- [20251126] 建立檔案
+- [查看原始名片圖檔](https://drive.google.com/file/d/1F3k8FIWd2xZIzl0AmTl6y6odu3BBzT2x/view?usp=drivesdk)
+
+
+
+

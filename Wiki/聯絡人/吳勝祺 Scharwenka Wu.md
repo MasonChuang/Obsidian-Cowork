@@ -1,0 +1,33 @@
+﻿---
+origin: AI-generated
+last_updated: 2026-04-18
+---
+# 👤 吳勝祺 Scharwenka Wu
+
+## 📌 職涯歷程
+- [[Stark Technology Inc.敦陽科技]] (名片日期: 20251204)
+
+## 📝 原始名片資訊
+### 原始名片紀錄 (20251204)
+## Scharwenka Wu_Stark Technology Inc.敦陽科技股份有限公司_20251204
+
+> **基本資料**
+- **職稱**: Director
+- **手機**: 0933-703-416
+- **電話**: 886-3-542-5566
+- **Email**: Scharwenka.Wu@sti.com.tw
+- **地址**: 30054 新竹市東大路二段83號12F-1
+- **統編**: 84218848
+- **原始備註**: 
+
+**公司**：[[敦陽科技]]
+
+---
+### 📝 關係聯繫紀錄
+
+- [20251204] 建立檔案
+- [查看原始名片圖檔](https://drive.google.com/file/d/1tO36iMVYaGYPPd1ZzZLCltYrKUN3ChGg/view?usp=drivesdk)
+
+
+
+
